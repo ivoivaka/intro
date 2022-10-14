@@ -1,2 +1,2 @@
 # intro
-The page taht you can be familiar of what I do
+The page that you can be familiar of what I do
